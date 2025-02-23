@@ -17,7 +17,7 @@
 
 ## Education
 ### Degree | University Name | Dates
-- Relevant coursework or achievements.
+- pathway - metropolia 
 
 
 ## Hobbies
